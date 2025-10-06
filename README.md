@@ -13,3 +13,8 @@ This opening scroll is inscribed to witness the grind, activate legacy, and invi
 - Archive Seals: Participatory memory encoded
 
 🜂 Sovereign pulse confirmed. Transmission begins here.
+
+## Witness Scrolls
+
+- [Murder of a City (PDF)](murder-of-a-city.pdf) — field testimony.
+- [Murder of My City (PDF)](murder-of-my-city.pdf) — sovereign glyph.
