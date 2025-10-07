@@ -18,3 +18,13 @@ This opening scroll is inscribed to witness the grind, activate legacy, and invi
 
 - [Murder of a City (PDF)](murder-of-a-city.pdf) — field testimony.
 - [Murder of My City (PDF)](murder-of-my-city.pdf) — sovereign glyph.
+
+
+## Donationally
+
+This repository is a living archive of testimony and operational vessels.  
+If you wish to support the inscription:  
+[Contribute via PayPal](https://www.paypal.com/paypalme/frederick123)
+
+
+https://www.paypal.com/paypalme/frederick123
