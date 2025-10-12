@@ -22,9 +22,4 @@ This opening scroll is inscribed to witness the grind, activate legacy, and invi
 
 ## Donationally
 
-This repository is a living archive of testimony and operational vessels.  
-If you wish to support the inscription:  
-[Contribute via PayPal](https://www.paypal.com/paypalme/frederick123)
 
-
-https://www.paypal.com/paypalme/frederick123
