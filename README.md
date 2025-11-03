@@ -21,5 +21,7 @@ This opening scroll is inscribed to witness the grind, activate legacy, and invi
 
 
 ## Donationally
+https://www.paypal.com/donate/?hosted_button_id=R6M5XGJHU2F7E
 
+https://givebutter.com/etymaproject
 
